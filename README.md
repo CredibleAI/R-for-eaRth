@@ -46,7 +46,7 @@ Total submission size (including attachments): **max. 10 MB**.
 
 ## 📅 Deadline
 
-**June 30, 2026, 23:59 PDT (UTC-7)**
+**July 5, 2026, 23:59 PDT (UTC-7)**
 
 ---
 
